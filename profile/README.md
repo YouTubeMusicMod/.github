@@ -6,6 +6,9 @@ Music streaming has become an essential part of our **mobile** experience, and *
 ## Link Dowload: [YouTube Music Mod APK](https://s.net.vn/ZHj9)
 ## **Graphics in YouTube Music Mod APK**  
 
+![Screenshot 2025-02-25 155423](https://github.com/user-attachments/assets/eacf65f1-3b28-46ac-8fb8-ddb820cd1307)
+
+
 The **graphics and visuals** in YouTube Music Mod APK remain the same as the original app. The **latest version** features a **clean and minimalistic design**, making navigation smooth and enjoyable. The album covers, playlists, and artist pages are displayed in **high resolution**, creating an immersive visual experience. Additionally, the dark mode makes it comfortable to use at night.  
 
 ## **Features of YouTube Music Mod APK**  
